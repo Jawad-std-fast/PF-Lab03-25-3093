@@ -4,9 +4,9 @@
 ## My name is Shaikh Jawad.
 ### Following are my academic instituions:
 
-1.Army Public School 
-2.Adamjee Government Science College 
-3.FAST National University
+1. Army Public School 
+2. Adamjee Government Science College 
+3. FAST National University
 
 ## Following are my hobbies:
 
